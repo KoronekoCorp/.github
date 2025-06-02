@@ -6,3 +6,5 @@
 https://a.elysia.rip/
 
 https://cwm.elysia.rip/
+
+https://discord.gg/m7RjpsDXNg
